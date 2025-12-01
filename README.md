@@ -1,2 +1,2 @@
-# Pasatiempo-Favorito
+# PASATIEMPO FAVORITO
 Mi pasatiempo favorito
